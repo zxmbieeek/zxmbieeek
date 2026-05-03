@@ -4,4 +4,4 @@
 
 
 HOW DO I REMOVE THE DAM GREY SQUARES.
-<img width="566" height="25" alt="tumblr_19706a166da33d9bb17cf09fd04ebc59_38090995_640" src="https://github.com/user-attachments/assets/81726dee-1fa5-414b-8c66-92297fcdb3f7" />
+<img width="1280" height="64" alt="tumblr_19706a166da33d9bb17cf09fd04ebc59_38090995_640" src="https://github.com/user-attachments/assets/81726dee-1fa5-414b-8c66-92297fcdb3f7" />
