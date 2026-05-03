@@ -5,7 +5,20 @@
 
 
 
-HOW DO I REMOVE THE DAM GREY SQUARES.
 
-<img width="1280" height="30" alt="tumblr_363286b0d0ceb833bd794654bf5d7403_d3c9efcd_640" src="https://github.com/user-attachments/assets/1a64b3cf-384b-4027-a45a-7cd01e866425" />
+
+HOW DO I REMOVE THE DAMn GREY SQUARES.
+
+
+
+
+
+waaaa wip
+
+
+
+
+
+<img width="1280" height="30" alt="tumblr_bcceb6542054c537e9f70a9bd7bf059e_83406dc0_640" src="https://github.com/user-attachments/assets/42232d96-d4aa-4bfb-a5be-39f1bfc94c12" />
+
 <img width="1280" height="133" alt="tumblr_569b9ce03bf86694e62808647c776895_f5b28fed_640" src="https://github.com/user-attachments/assets/970bcb4c-8ab2-4765-bd5d-c4b2d19861c7" />
