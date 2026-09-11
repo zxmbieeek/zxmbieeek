@@ -10,7 +10,7 @@
 HOW DO I REMOVE THE DAMn GREY SQUARES.
 
 
-
+someone teach me how to do this please
 
 
 waaaa wip
